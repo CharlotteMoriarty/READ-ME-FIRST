@@ -7,4 +7,4 @@ If you would like to try it by yourself or just play feel free to do it.
 Actually I like the cookie clicker too ;)
 
 
-Any questions? Feel free to contant me kontakt(at)karolinakieltyka.pl or you can find me on LinkednIn https://www.linkedin.com/in/karolinakieltyka/
+Any questions? Feel free to contant me kontakt@karolinakieltyka.pl or you can find me on LinkednIn https://www.linkedin.com/in/karolinakieltyka/
